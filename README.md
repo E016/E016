@@ -1,3 +1,4 @@
-![1000129895](https://github.com/user-attachments/assets/5081b3f7-7cf7-42cf-9c27-a71529bd8215)
+![1000129900](https://github.com/user-attachments/assets/72c68f85-8376-49db-ab5f-3c91e00247b8)
+
 
 this is who youre being mean to right now (me) 
