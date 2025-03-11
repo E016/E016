@@ -1,2 +1,2 @@
-<img align="center" src="https://github.com/user-attachments/assets/7cb2db77-4326-496e-8bfa-ca374c39127c">
+<img align="center" src="https://github.com/user-attachments/assets/92902427-9ffa-4464-836c-09cb9129e273">
 this is who you are being mean to right now (me) 
