@@ -1,2 +1,2 @@
-![1000129818](https://github.com/user-attachments/assets/476ae56d-cf8c-42a9-baaa-afe7b42b36a5)
-hello bro ♥
+![1000129894](https://github.com/user-attachments/assets/cb8d2fc6-e72a-4349-8e3b-475fb5e32f29)
+this is who youre being mean to right now (me) 
