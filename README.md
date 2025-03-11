@@ -1,4 +1,2 @@
-![1000129900](https://github.com/user-attachments/assets/72c68f85-8376-49db-ab5f-3c91e00247b8)
-
-
+<img align="center" width="520" height="500" src="https://github.com/user-attachments/assets/856cff8a-7e34-4789-b2c1-93c96d33da6d">
 this is who youre being mean to right now (me) 
